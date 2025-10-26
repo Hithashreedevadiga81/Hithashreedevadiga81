@@ -3,6 +3,7 @@
 - 🌱 I completed my engineering in Artificial intelligence and Datascience
 - 💻 working in Kyndryl banglore as infrastructure specialist
 - 💞️ I’m a blog writter
+- 📱 insta: https://www.instagram.com/hitha_devadiga_81?igsh=d2g5OXBvZXNxeWVi
 - 📫 reach me thorugh mail: hithashreedevadiga81@gmail.com
 
 <!---
